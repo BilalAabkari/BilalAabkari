@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **bilalaabkari13@gmail.com**
 
-- ⚡ Fun fact **For some reason, I have a PhD in "Fix it ASAP" with a specialization in "Why is this happening?". My job title might as well be "Professional Panic Manager."**
-
 ###
 
 <br clear="both">
